@@ -1,1 +1,0 @@
-# simple_delivery_suai
